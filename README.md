@@ -1,2 +1,0 @@
-# oathdwm
-# oathdwm
